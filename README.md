@@ -1,10 +1,10 @@
 啪啪影院最新地址发布页
 ==
-:star: :point_right: 【地址一】 ：https://www.ppyy68.com
+:star: :point_right: 【地址一】 ：https://www.ppyy08.com
 ------
-:star: :point_right: 【地址二】 ：https://www.ppyy69.com
+:star: :point_right: 【地址二】 ：https://www.ppyy09.com
 ------
-:star: :point_right: 【地址三】 ：https://www.ppyy70.com
+:star: :point_right: 【地址三】 ：https://www.ppyy10.com
 ------
 :star: :point_right: 【大陆地址发布页】 ：https://www.aazzav.com
 ------

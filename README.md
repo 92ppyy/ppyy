@@ -12,6 +12,9 @@
 ------
 :star: :point_right: 【邮箱联系方式】 ：ppyydz@gmail.com
 ------
+------
+:star: :point_right: 【5266影视网】 ：https://www.5266.com
+------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
 

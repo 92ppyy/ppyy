@@ -4,7 +4,7 @@
 ------
 :star: :point_right: 【地址二】 ：https://www.ppyy102.com
 ------
-:star: :point_right: 【地址三】 ：http://www.ppyy101.com
+:star: :point_right: 【地址三】 ：https://www.ppyy101.com
 ------
 :star: :point_right: 【大陆地址发布页】 ：https://www.aazzav.com
 ------
